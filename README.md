@@ -6,3 +6,8 @@ today priti mishra approch me and say to me can we exchange our phone number
 today priti mishra approch me and ask me can we exchange our phone number 
 today priti mishra approch me and ask me can we exchange our phone number 
 today priti mishra approch me and ask mw can we exchange our phome number
+today priti mishra come and talk to me 
+today priti mishra come and talk to me 
+today priti mishra come and talk to me 
+today priti mishra come and talk to me 
+today priti mishra come and talk to me 
